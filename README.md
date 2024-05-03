@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @VSP-Big-Baby
+- 👀 I’m interested in decoration in art and creation
+- 🌱 I’m currently looking for something new and creative
+- 💞️ I want to start my own nails art & suppies
+-
+-  VSP-Big-Baby is a repository that holds a special place in our hearts because it is a place where we can showcase our creativity and innovation in a unique and meaningful way. The community that surrounds VSP-Big-Baby is incredibly supportive and encouraging, making it a truly special and inspiring place to be a part of.
+--->
